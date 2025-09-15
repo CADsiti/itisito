@@ -1,3 +1,81 @@
 All'ITIS ci fanno imparare a memoria questo:
 
-Lorem ipsum dolor sit amet consectetur adipisicing elit. Error aspernatur magni inventore blanditiis placeat cum unde dolores amet? Odio laboriosam ipsa id architecto numquam velit at dicta excepturi nihil fugit, atque amet ratione molestiae aspernatur culpa deleniti fugiat rerum repudiandae. Excepturi soluta similique blanditiis delectus at nemo? Expedita neque minima veniam fuga ipsam quisquam consequuntur aperiam eius, sed eveniet ipsa dicta quaerat, sit ex quasi corrupti, magni debitis animi nihil maiores! Quaerat fugiat quidem eveniet. Ipsa praesentium et sit doloremque quod, earum unde ab neque soluta saepe at ratione tenetur ut delectus non aliquid quidem, inventore velit, provident vitae cupiditate expedita natus amet! Iusto nam iste, totam aliquid, officiis maiores laborum repellendus consequatur nemo tempore iure temporibus accusamus amet nobis quo vel nihil recusandae natus ipsa distinctio aut odio soluta corrupti. Obcaecati vitae quas perspiciatis earum. Repudiandae alias autem, atque eaque consectetur quis harum, quia dolorem fugiat fugit earum eligendi aspernatur unde est aperiam facilis maxime velit eveniet deleniti necessitatibus similique porro quam. Expedita doloribus dolorem tempora corporis quasi hic natus voluptatibus maxime quod, ut voluptate inventore! Hic temporibus odit culpa, laborum pariatur quae atque! Dolores quidem ut cupiditate esse a voluptatum praesentium sed dolore dignissimos labore ea corrupti vitae odio iure nobis, recusandae neque harum provident temporibus dolor nostrum nisi iusto doloribus voluptate! Ad repellendus, quia recusandae praesentium ex nobis possimus odio adipisci aperiam iure facere. Nobis explicabo unde, labore voluptates illo incidunt voluptatibus animi voluptatem magnam praesentium, beatae dolores ab, quis magni! Hic, tempore doloremque sit atque dolores eaque, ex quibusdam, fugit voluptate numquam quisquam sed sint placeat odio cumque quam. Temporibus recusandae sed dolores necessitatibus magni officiis aliquam perspiciatis enim quas iure est illum consequatur deleniti, non mollitia unde iusto harum voluptates. Quisquam, doloribus vitae debitis, porro enim nam, voluptatibus odio dolor error assumenda totam alias quidem voluptate fugiat excepturi deserunt. Vitae sit accusantium similique id qui nemo quae quos harum quia quam numquam eius iste eos porro asperiores quaerat, repudiandae veniam quidem autem cupiditate! Earum laudantium laborum voluptatibus ipsa quibusdam molestias reiciendis voluptates hic beatae qui dolorem nihil, magnam, ad dolor non aliquid? Doloremque porro sequi, laboriosam fugit nesciunt iure aliquid assumenda cumque molestias ab ducimus atque accusamus voluptatum eos quasi perspiciatis! Nam praesentium aut voluptatem iusto, rerum architecto inventore amet, nostrum perferendis incidunt laboriosam consequatur, exercitationem molestias vitae officiis quis deserunt mollitia consequuntur iste eos omnis modi! Laborum asperiores recusandae facere eius expedita non illo.
+Nel mezzo del cammin di nostra vita
+mi ritrovai per una selva oscura,
+ché la diritta via era smarrita.
+
+Ahi quanto a dir qual era è cosa dura
+esta selva selvaggia e aspra e forte
+che nel pensier rinova la paura!
+
+Tant' è amara che poco è più morte;
+ma per trattar del ben ch'i' vi trovai,
+dirò de l'altre cose ch'i' v'ho scorte.
+
+Io non so ben ridir com' i' v'intrai,
+tant' era pien di sonno a quel punto
+che la verace via abbandonai.
+
+Ma poi ch'i' fui al piè d'un colle giunto,
+là dove terminava quella valle
+che m'avea di paura il cor compunto,
+
+guardai in alto e vidi le sue spalle
+vestite già de' raggi del pianeta
+che mena dritto altrui per ogne calle.
+
+Allor fu la paura un poco queta,
+che nel lago del cor m'era durata
+la notte ch'i' passai con tanta pieta.
+
+E come quei che con lena affannata,
+uscito fuor del pelago a la riva,
+si volge a l'acqua perigliosa e guata,
+
+così l'animo mio, ch'ancor fuggiva,
+si volse a retro a rimirar lo passo
+che non lasciò già mai persona viva.
+
+Poi ch'èi posato un poco il corpo lasso,
+ripresi via per la piaggia diserta,
+sì che 'l piè fermo sempre era 'l più basso.
+
+Ed ecco, quasi al cominciar de l'erta,
+una lonza leggiera e presta molto,
+che di pel macolato era coverta;
+
+e non mi si partia dinanzi al volto,
+anzi 'mpediva tanto il mio cammino,
+ch'i' fui per ritornar più volte vòlto.
+
+Temp' era dal principio del mattino,
+e 'l sol montava 'n sù con quelle stelle
+ch'eran con lui quando l'amor divino
+
+mosse di prima quelle cose belle;
+sì ch'a bene sperar m'era cagione
+di quella fiera a la gaetta pelle
+
+l'ora del tempo e la dolce stagione;
+ma non sì che paura non mi desse
+la vista che m'apparve d'un leone.
+
+Questi parea che contra me venisse
+con la test' alta e con rabbiosa fame,
+sì che parea che l'aere ne tremesse.
+
+Ed una lupa, che di tutte brame
+sembiava carca ne la sua magrezza,
+e molte genti fé già viver grame,
+
+questa mi porse tanto di gravezza
+con la paura ch'uscia di sua vista,
+ch'io perdei la speranza de l'altezza.
+
+E qual è quei che volontieri acquista,
+e giugne 'l tempo che perder lo face,
+che 'n tutti suoi pensier piange e s'attrista;
+
+tal mi fece la bestia sanza pace,
+che, venendomi 'ncontro, a poco a poco
+mi ripigneva là dove 'l sol tace.
