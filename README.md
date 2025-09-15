@@ -1,5 +1,6 @@
-All'ITIS ci fanno imparare a memoria questo:
+All'ITIS ci fanno imparare a memoria sta roba qua:
 
+<pre>
 Nel mezzo del cammin di nostra vita
 mi ritrovai per una selva oscura,
 ché la diritta via era smarrita.
@@ -79,3 +80,4 @@ che 'n tutti suoi pensier piange e s'attrista;
 tal mi fece la bestia sanza pace,
 che, venendomi 'ncontro, a poco a poco
 mi ripigneva là dove 'l sol tace.
+</pre>
